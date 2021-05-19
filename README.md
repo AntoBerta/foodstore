@@ -4,12 +4,6 @@
 
 # Marcos Solari
 
-## Antonela
-
-## Joaquin Alvarez
-
-#Antonela
-
 ## Joaquin Alvarez
 
 ## Antonela
